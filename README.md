@@ -8,3 +8,6 @@ I envision myself as creative, inventive and innovative, taking the lead in init
 As a scholar, I embody the scientific spirit – inquisitive, logical, analytical and critical – but also equally imbued with the humanist values of justice and compassion, prudence, integrity and humility.
 I am committed to the perpetuation of the human race and the preservation of the universe that is its home.
 I finally envision myself as actively professing and operationalizing love of God, country, others, and self in all my goals, activities and achievements.
+
+# Louise Cassidy D. Panganiban
+insert paragraph
