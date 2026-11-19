@@ -1,3 +1,2 @@
-# CS3_2Q_Arayat_G2
-
-text
+# Vernice Ilithyia N. Calaunan
+A student of 9-Arayat
