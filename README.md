@@ -1,5 +1,5 @@
 # Vernice Ilithyia N. Calaunan
-A student of 9-Arayat
+Ako ay Pilipino Buong katapatang nanunumpa Sa watawat ng Pilipinas At sa bansang kanyang sinasagisag Na may dangal, katarungan at kalayaan Na pinakikilos ng sambayanang Maka-Diyos, makatao, Makakalikasan at makabansa.
 
 # Aurasia Klayre L. Olaso
 I am a Philippine Science High School Scholar.
